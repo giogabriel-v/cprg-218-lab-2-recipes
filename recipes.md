@@ -105,6 +105,20 @@ Ingredients:
 - 2 tsp vanilla extract
 - 3 cups semisweet chocolate chips
 
+### Blueberry White Chocolate Scones 
+
+Ingredients:
+- 2 cups all-purpose flour
+- 1/4 cup sugar
+- 2 teaspoons baking powder
+- 1 teaspoon salt
+- 1/4 cup butter, room temp
+- 1 cup blueberries
+- 1/2 cup white chocolate chips
+- 3/4 cup whipping cream, plus 2 tbsp for brushing the scones
+- 1 large egg
+- Coarse sugar for garnish (optional)
+
 Instructions:
 1. Preheat oven to 375°F (190°C).
 2. Combine flour, baking soda, and salt in a bowl.
