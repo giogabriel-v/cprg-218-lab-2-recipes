@@ -70,16 +70,15 @@ Instructions:
 6. Reduce heat to low and let simmer for 10-15 minutes.
 7. Serve meatballs and sauce over spaghetti.
 
-### Grilled Chicken Sandwich
+### Cajun Grilled Chicken Sandwich
 
 Ingredients:
 - 2 boneless, skinless chicken breasts
-- Salt and pepper to taste
+- 4 teaspoons of Cajun seasoning
 - 2 tablespoons olive oil
-- 4 slices Swiss cheese
+- 4 slices of Pepperjack or Monterey Cheese
 - 4 hamburger buns
 - Lettuce
-- Tomato
 - Mayonnaise
 
 Instructions:
