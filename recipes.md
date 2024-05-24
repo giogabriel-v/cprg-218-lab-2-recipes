@@ -90,10 +90,11 @@ Instructions:
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
 
 ## Desserts
-### Chocolate Chip Cookies
+### Double Chocolate Chip Cookies
 
 Ingredients:
 - 2 1/4 cups all-purpose flour
+- 2/3 cups of unsweetened cocoa powder
 - 1 tsp baking soda
 - 1 tsp salt
 - 1 cup unsalted butter, softened
@@ -101,7 +102,7 @@ Ingredients:
 - 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 3 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
