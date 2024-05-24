@@ -89,6 +89,39 @@ Instructions:
 5. Toast hamburger buns on the grill.
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
 
+### Spanish Paella Recipe
+
+Ingredients: 
+- 1/4 cup extra virgin olive oil 
+- 1 onion, diced
+- 1 bell pepper, diced
+- 4 cloves garlic
+- 3 roma tomatoes, finely diced
+- Bay leaf
+- 1 teaspoon paprika, sweet or smoked
+- 1 pinch saffron threads
+- Salt and pepper
+- 1/4 cup white wine
+- 4 boneless, skinless chicken thighs, cut into pieces
+- 1/4 cup freshly chopped parsley
+- 2 cups Spanish rice
+- 5 cups chicken broth
+- 1/2 cup frozen peas
+- 1/2 lb jumbo shrimp or prawns, peeled
+- 1/2 lb mussels, cleaned properly, beards off
+- 8oz calamari rings
+- Lemons for garnish
+
+Instructions: 
+1. Add olive oil to a skillet over medium heat. Add onion, bell peppers and garlic. cook until onion is translucent. Add chopped tomato, bay leaf, paprika, saffron salt and pepper. Stir and cook for 5 minutes. Add white wine and cook for 10 minutes. Taste and add salt if needed.
+2. Add chicken pieces, 2 tablespoons chopped parsley and rice to the pot. Cook for 1 minute.
+3. Pour chicken broth slowly all around the pan and jiggle the pan to get the rice into an even layer. (Do not stir the mixture going forward).
+4. Bring mixture to a boil. Reduce heat to medium low. Give the pan a gentle shake back and forth just once or twice during cooking.
+5. Cook for about 15-18 minutes (uncovered), then nestle the shrimp, mussels and calamari into the mixture, sprinkle peas on top and continue to cook (without stirring) for about 5 more minutes. Watch for most of the liquid to be absorbed and the rice at the top nearly tender. 
+6. Remove pan from heat and cover pan with a lid or tinfoil.
+7. Garnish with fresh parsley and lemon slices. Serve.
+
+
 ## Desserts
 ### Double Chocolate Chip Cookies
 
